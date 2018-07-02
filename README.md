@@ -17,3 +17,11 @@ This is bound to cause us trouble
 yeah, i wanna type something 
 
 gUESS WHAT IM TRYING TO DO A RESET
+
+
+hello
+
+
+YES THIS IS THE CHAMGE
+
+FIRST CHANGE-- SOFT
